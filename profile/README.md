@@ -9,8 +9,6 @@
 
 Ещё у нас есть марксистские кружки с продуманной программой. В них можно вступить в Москве, Санкт-Петербурге, Калининграде и онлайн.
 
-Наш сайт: [https://spichka.media](https://spichka.media)
+Сайт: [https://spichka.media](https://spichka.media)
 
 Телеграм-канал: [https://t.me/spichka_media](https://t.me/spichka_media)
-
-Связаться: https://t.me/connect_spichka
