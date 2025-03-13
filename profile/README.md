@@ -12,3 +12,5 @@
 Наш сайт: [https://spichka.media](https://spichka.media)
 
 Телеграм-канал: [https://t.me/spichka_media](https://t.me/spichka_media)
+
+Связаться: https://t.me/connect_spichka
